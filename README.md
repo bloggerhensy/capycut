@@ -1,1 +1,3 @@
-# capycut
+CapCut Mod APK is a popular modified version of the CapCut video editing app, designed for users seeking enhanced features and functionalities. Unlike the standard version, this modded APK often includes unlocked premium features such as ad-free editing, access to exclusive filters, effects, and templates, making it an ideal choice for creators who want to elevate their video editing experience without limitations. 
+
+With [CapCut Mod APK](https://capycutapk.com/), users can create professional-quality videos seamlessly. The intuitive interface ensures ease of use, while advanced tools empower users to craft engaging content, whether for social media or personal projects.
